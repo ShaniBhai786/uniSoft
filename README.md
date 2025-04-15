@@ -1,2 +1,2 @@
 # uniSoft
-uniSoft a software leading company. "#The Software of every king"
+uniSoft a software leading company. "#The Software of every kind"
